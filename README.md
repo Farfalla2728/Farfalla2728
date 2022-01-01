@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Farfalla2728
 - 👀 I’m interested in health & fitness, gaming and coding.
-- 🌱 I’m currently learning how to code.
+- 🌱 I’m currently learning Italian and how to code.
 - 💞️ I’m looking to collaborate on nothing at the moment.
 - 📫 How to reach me ...
 
